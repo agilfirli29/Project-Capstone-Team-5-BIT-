@@ -24,7 +24,7 @@ Waktu Capstone : Selama 3 Bulan
 Rencana :
 2 Link G-meet
 - Diskusi Tim Magang
--  Internal Bee-Rp
+- Internal Bee-Rp
 
 Pengerjaan Tim 4 dan Tim 5 beda
 Mungkin Secara meet bersama
